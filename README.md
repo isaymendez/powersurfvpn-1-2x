@@ -1,1 +1,1 @@
-# powersurfvpn-1-2xwww
+# powersurfvpn-1dd-2xwww
